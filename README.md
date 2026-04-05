@@ -2,7 +2,21 @@
 
 Public Domain Works by Narasimhacharya Ramanujapuram (1860-1937).
 
-## Karnataka Kavicharite.
+## Karnataka Kavicharite. Vol 1.
+
+English - Plain Text  
+English - PDF | Biolinum | Atkinson | Cursive | Aurical  
+Kannada - Plain Text  
+Kannada - PDF
+
+## Karnataka Kavicharite. Vol 2.
+
+English - Plain Text  
+English - PDF | Biolinum | Atkinson | Cursive | Aurical  
+Kannada - Plain Text  
+Kannada - PDF
+
+## Karnataka Kavicharite. Vol 3.
 
 English - Plain Text  
 English - PDF | Biolinum | Atkinson | Cursive | Aurical  
