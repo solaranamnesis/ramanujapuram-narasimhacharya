@@ -1,6 +1,6 @@
 # Ramanujapuram Narasimhacharya.
 
-Public Domain Works by Narasimhacharya Ramanujapuram (1860-1937).
+Public Domain Works by Narasimhacharya Ramanujapuram (1860-1936).
 
 ## Karnataka Kavicharite. Vol 1.
 
